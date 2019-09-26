@@ -1,3 +1,5 @@
 # hello-world
-This Girl is BAD
-Cathy Jordan is BRAVE enough to take her seat at the table while ASCENDING above her circumstances because she is DETERMINED and disciplined in her focus to success. She's BAD!
+This Girl is BADD.
+I am Cathy Jordan.
+I am BRAVE enough to take my seat at the table while ASCENDING above my circumstances because I am DETERMINED and DISCIPLINED in my focus to succeed. 
+She's BADD!
